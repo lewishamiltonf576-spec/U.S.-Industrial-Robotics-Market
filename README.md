@@ -3,7 +3,7 @@
 
 **Expanding manufacturing activities, increasing adoption of industrial automation, and continuous advancements in AI-enabled robotics are accelerating the growth of the U.S. industrial robotics market.**
 
-The [**U.S. Industrial Robotics Market**](https://www.nextmsc.com/report/us-industrial-robotics-market-3706) size was valued at **USD 4.37 billion in 2024**, with an estimation of **USD 5.22 billion in 2025**, and is projected to reach **USD 9.94 billion by 2030**, registering a **CAGR of 13.7% from 2025 to 2030**. In terms of volume, the market is expected to grow from **74 thousand units in 2025** to **185 thousand units by 2030**, reflecting strong demand for industrial automation across key manufacturing industries. The market is witnessing rapid expansion as manufacturers increasingly deploy advanced robotic systems to improve productivity, reduce labor dependency, and enhance operational efficiency.
+The [**U.S. Industrial Robotics Market**](https://www.nextmsc.com/report/us-industrial-robotics-market-3706) size was valued at USD 4371 million in 2024 and is expected to reach USD 5219.0 million by 2025. Looking ahead, the industry is projected to expand significantly, reaching USD 9936.7 million by 2030, registering a CAGR of 13.7% from 2025 to 2030. In terms of volume, the market recorded 58 thousand units in 2024, with forecasts indicating growth to 74 thousand units by 2025 and further to 185 thousand units by 2030, reflecting a CAGR of 20.2% over the same period. 
 
 [**Download FREE Sample**](https://www.nextmsc.com/us-industrial-robotics-market-3706/request-sample)
 
